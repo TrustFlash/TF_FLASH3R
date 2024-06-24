@@ -43,7 +43,7 @@ More info on our telegram group below.
 
 *Demo will be available in the next update*
 
-##Contact
+## Contact
 
 Join our group here - https://t.me/+26LPLvbbWZQ1ZDg0
 
